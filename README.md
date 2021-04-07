@@ -1,4 +1,8 @@
-### Hi there 👋
+# vamos a ver
+## los tamaños
+### de cada cosita
+#### de estas
+
 
 <!--
 **esamimita/esamimita** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
