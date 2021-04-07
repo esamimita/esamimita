@@ -1,4 +1,4 @@
-## [mi twitter] (https://twitter.com/MminayaM) (mi user no es esamimita, aunque debería serlo).
+## [mi twitter(https://twitter.com/MminayaM)] (mi user no es esamimita, aunque debería serlo).
 
 
 <!--
